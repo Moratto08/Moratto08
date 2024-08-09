@@ -16,7 +16,7 @@
  
 <br>
  
-### Segue meu Linkedin abaixo!
+### Segue Linkedin abaixo!
  
 <div>
  
